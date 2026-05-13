@@ -1,5 +1,5 @@
 # Behnam Azizi
-Visal and Interaction Designer from Tehran
+Visual Designer
 
 - find more ways to contact me at  [BehnamAzizi.com](http://behnamazizi.com)
 
